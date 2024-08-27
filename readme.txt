@@ -1,4 +1,3 @@
-Free Download Source Code "Bank Management System"
 
 FIRST Download
 
